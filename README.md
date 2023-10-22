@@ -2,6 +2,8 @@
 
 How to create a reel using canva design
 
+Instagram link: https://www.instagram.com/reel/CysBf6kPjNf/?igshid=MzRlODBiNWFlZA==
+
 Design name: SERENITY DESIGNS FOR JEWLLERY
 
 About us: We provide a range of collections with a high standard for all ages, expressing timeless elegance. Our creative designs encapsulate tranquilly, and our attentive service guarantees a remarkable encounter. In the jewellery industry, our goal is to inspire elegance and foster generational connections through timeless grace.
