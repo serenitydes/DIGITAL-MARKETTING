@@ -12,4 +12,4 @@ Vision: To be the top choice for exceptional jewellery, creating a feeling of co
 
 Objective: Serenity Designs promotes excellent quality and provides a wide selection of jewellery for all age groups. Our creative designs are meant to arouse feelings of beauty and tranquilly. Our goal is to inspire elegance in the jewellery industry while remaining committed to providing individualised expertise.
 
-Features We provide jewellery for every age group, focusing excellent craftsmanship through stringent guidelines. We constantly innovate to offer individualised service and tranquilly. Our aim is to leave a mark on the craft of jewellery and inspire beauty using our one-of-a-kind designs.
+Features: We provide jewellery for every age group, focusing excellent craftsmanship through stringent guidelines. We constantly innovate to offer individualised service and tranquilly. Our aim is to leave a mark on the craft of jewellery and inspire beauty using our one-of-a-kind designs.
